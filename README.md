@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm final year student of Bachelor degree .<br>I'm currently working on developed my skills.,<br>I'm looking a internship and Job .<br>
+I'm  Nitkarsh Upadhyay .<br>I'm currently working on developed my skills.,<br>I'm looking a internship and Job .<br>
 
 
 ## 🌐 Socials:
